@@ -1,6 +1,6 @@
 [cover code] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST_ TITLE
+# MOTHNODE_ Low Count
 
 **Listen now:** 
 
@@ -17,12 +17,20 @@ Description.
 > **Narrative Design:**
 
 > **Music Video Credits:**
-
+https://www.youtube.com/watch?v=qeWK18IoyIc
 
 ## Lyrics
 
 ```
+(low voice, deep)
+make it alive
+with your head up
+days are unfixed
+for the holdups
 
+comms are attained
+from the upright
+who think of no rollbacks
 
 ```
 
